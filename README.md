@@ -1,1 +1,2 @@
-![image](https://github.com/MarjorieNevarez/lugaresturisticos/assets/151756579/9396516c-bbd6-4828-b20c-bfbb0bf04215)
+![image](https://github.com/MarjorieNevarez/lugaresturisticos/assets/151756579/1f523edc-6d69-4af3-89ff-500e3e15f784)
+
